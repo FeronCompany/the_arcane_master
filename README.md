@@ -1,2 +1,2 @@
-# the_arcane_master
-novel
+# 大奥术师
+个人小说
