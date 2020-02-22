@@ -1,2 +1,3 @@
-# 大奥术师
-个人小说
+# The Arcane Master
+My personal novel
+started by 2020-02-22
